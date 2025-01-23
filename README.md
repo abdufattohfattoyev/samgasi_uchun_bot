@@ -1,0 +1,2 @@
+# samgasi_uchun_bot
+id_orqali_malumot_topib_beradi
